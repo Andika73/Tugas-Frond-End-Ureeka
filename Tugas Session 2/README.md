@@ -1,1 +1,1 @@
-![Tugas Ureeka](https://github.com/Andika73/Tugas-Frond-End-Ureeka/assets/119615517/90a4a598-cf04-40a3-ba06-48ddc3b8273b)
+![Tugas Ureeka (1)](https://github.com/Andika73/Tugas-Frond-End-Ureeka/assets/119615517/785a7bde-e38d-475f-a608-b3fe909d88be)
